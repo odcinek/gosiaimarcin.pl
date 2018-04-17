@@ -1,0 +1,1 @@
+# gosiaimarcin.pl
